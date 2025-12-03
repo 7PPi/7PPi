@@ -78,7 +78,7 @@ Let’s connect and build something great. 🚀
 ## 🌐 Connect With Me
 
 👉 **LinkedIn**:  
-➡️ [Emmanuel Tchipoque]([https://www.linkedin.com/in/emmanuel-tchipoque](https://www.linkedin.com/in/emanuel-tchipoque-820894198?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app))
+➡️ LinkedIn: [Emanuel Tchipoque](https://www.linkedin.com/in/emanuel-tchipoque-820894198?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ---
 
